@@ -1,0 +1,1 @@
+# shirokun-blogger-template
